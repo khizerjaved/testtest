@@ -8,7 +8,7 @@ This subdomain has been successfully claimed by **Khizer**.
 
 ---
 
-[https://whoami.secuirtybreached.org/](https://whoami.secuirtybreached.org/)
+[https://whoami.securitybreached.org/](https://whoami.securitybreached.org/)
 
 ---
 
